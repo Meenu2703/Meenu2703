@@ -1,6 +1,6 @@
 # 👋 Hello, I'm Meenakshi!
 
-🌟 I'm an MCA student driven by an insatiable curiosity and a passion for leveraging technology to solve real-world problems. I believe in continuous learning, and I love to **build, break, and rebuild** until I get things right!
+🌟 I'm an MCA student driven by an insatiable curiosity and a passion for leveraging technology to solve real-world problems. Always trying to explore, learn and evolve in the world of technology.
 
 
 
