@@ -28,7 +28,7 @@
 ## 💬 Let's Connect!
 
 - 💼 [LinkedIn]( https://www.linkedin.com/in/meenakshi-m-848303220 )  
-- ✉️ [Email](meenakshibhanu27@gmail.com)
+- ✉️ [Email](mailto:meenakshibhanu27@gmail.com)
 
 
 Thanks for stopping by! 🚀✨
